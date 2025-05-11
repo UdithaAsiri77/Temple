@@ -1,2 +1,0 @@
-# Temple
-KotiyaKubura Temple
